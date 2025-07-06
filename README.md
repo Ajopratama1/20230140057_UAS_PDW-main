@@ -10,7 +10,6 @@
 ![IMG-20250706-WA0099](https://github.com/user-attachments/assets/a24e44e2-1dda-4de1-bdb5-c50f97150e4c)
 ![IMG-20250706-WA0095](https://github.com/user-attachments/assets/e0aada48-b3bd-4492-879c-5760df0d1827)
 ![IMG-20250706-WA0090](https://github.com/user-attachments/assets/a6df7328-8d72-41cf-8407-0fab50823531)
-![IMG-20250706-WA0094](https://github.com/user-attachments/assets/a8cea64a-8bf6-4704-a484-ad0b115ef715)
 ![IMG-20250706-WA0089](https://github.com/user-attachments/assets/9e669d7b-fda8-4750-9616-980bb61a30fc)
 ![IMG-20250706-WA0088](https://github.com/user-attachments/assets/c4a2e804-9b45-45be-bf2b-637180db1fb6)
 ![IMG-20250706-WA0087](https://github.com/user-attachments/assets/3e124873-a1a9-4093-8f7a-abda3de3e8f6)
